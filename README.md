@@ -1,1 +1,0 @@
-# galyama.githup.io
